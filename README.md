@@ -2,7 +2,7 @@
 # 守候机场优惠
 
 ## 官方网站
-## 👉 [https://push.sntp.pro/](https://ncdn1.sntp.uk/auth/register?code=YK75B3BE)
+## 👉 [https://push.sntp.pro/](https://u996.xn--hwqp2zit2amna.net/auth/register?code=YK75B3BE)
 
 ---
 
