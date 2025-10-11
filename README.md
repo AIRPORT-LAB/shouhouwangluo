@@ -39,4 +39,3 @@
 
 Premium-高级套餐：每月流量1000GB, ¥888.00/每年
 
-![访问量](https://visitor-badge.glitch.me/badge?page_id=AIRPORT-LAB.shouhouwangluo)
